@@ -2,6 +2,10 @@
 
 Male sex toys are a normal part of sexual wellness. They can improve pleasure, help you learn what you enjoy, and add variety to solo or partner play. Here is how to get started.
 
+<img width="1536" height="1024" alt="Pleasure Is Wellness_ Sex Toy Collection" src="https://github.com/user-attachments/assets/2f2805e3-647c-4601-8a29-1392fa33c01e" />
+
+
+
 ## 1. Choose the Right Toy
 Common options include masturbation sleeves, cock rings, vibrating toys, and prostate massagers. Pick body-safe materials like medical-grade silicone, and avoid cheap porous materials that are hard to clean.
 
